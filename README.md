@@ -1,0 +1,2 @@
+# NGKCk
+Free and fair
